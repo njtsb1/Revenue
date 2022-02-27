@@ -1,4 +1,4 @@
-# Pave :Piece of cake:
+# Pave :cake:
 
 # Ingredients
 
