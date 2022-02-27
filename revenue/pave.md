@@ -1,4 +1,4 @@
-# Pave 🍰
+# Pave 
 
 # Ingredients
 
