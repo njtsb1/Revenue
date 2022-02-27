@@ -1,4 +1,4 @@
-# Carrot cake
+# Carrot cake 🥮
 
 # Ingredients
 
