@@ -6,7 +6,7 @@
 - 2 grated carrots
 - 1 grated beet
 - 1 tomato, skinless and seedless
-- 1 onion, sliced ​​or chopped
+- 1 onion, sliced or chopped
 
 ### Sauce
 
